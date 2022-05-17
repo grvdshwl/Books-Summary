@@ -61,6 +61,9 @@ and savings and retirement plans as all they have in their asset column. Because
 ### Why the Rich Get Richer
 A review of my rich dad’s financial statement shows why the rich get richer. The asset column generates more than enough income to cover expenses, with the balance reinvested into the asset column. The asset column continues to grow and, therefore, the income it produces grows with it. The result is that the rich get richer!
 
+![Rich Dad Income statement](https://user-images.githubusercontent.com/79152383/168832138-31ec828f-989c-4f92-878e-53dfb575e856.png)
+
+
 "Wealth is a person’s ability to survive so many number of days forward—or, if I stopped working today, how long could I survive?"
 
 
@@ -73,8 +76,21 @@ So while I’m not yet rich, I am wealthy. I now have income generated from asse
 
 My next goal would be to have the excess cash flow from my assets reinvested into the asset column. The more money that goes into my asset column, the more my asset column grows.
 
-   
 
    
+LESSON 3: MIND YOUR OWN BUSINESS
+
+The rich focus on their asset columns while everyone else focuses on their income statements.
+
+"To become financially secure, a person needs to mind their own business. Your business revolves around your asset column, not your income column."
+
+   "Start minding your own business. Keep your daytime job, but start buying real assets, not liabilities or personal effects that have no real value once you get them home."
+   
+   Keep expenses low, reduce liabilities, and diligently build a base of solid assets.
+   
+   "An important distinction is that rich people buy luxuries last, while the poor and middle class tend to buy luxuries first. "
+   
+   ![Assets to own](https://user-images.githubusercontent.com/79152383/168832013-976c77b5-59e5-4e13-a28e-5381f479ed1d.png)
+
 
 
