@@ -78,7 +78,7 @@ My next goal would be to have the excess cash flow from my assets reinvested int
 
 
    
-LESSON 3: MIND YOUR OWN BUSINESS
+## LESSON 3: MIND YOUR OWN BUSINESS
 
 The rich focus on their asset columns while everyone else focuses on their income statements.
 
