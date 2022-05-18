@@ -92,5 +92,11 @@ The rich focus on their asset columns while everyone else focuses on their incom
    
    ![Assets to own](https://user-images.githubusercontent.com/79152383/168832013-976c77b5-59e5-4e13-a28e-5381f479ed1d.png)
 
+## LESSON 4: THE HISTORY OF TAXES AND THE POWER OF CORPORATIONS
 
+" My rich dad just played the game smart, and he did it through corporations— the biggest secret of the rich."
+
+"For example, “1031” is jargon for Section 1031 of the Internal Revenue Code which allows a seller to delay paying taxes on a piece of real estate that is sold for a capital gain through an exchange for a more expensive piece of real estate. Real estate is one investment vehicle that has a great tax advantage. As long as you keep trading up in value, you will not be taxed on the gains until you liquidate. People who don’t take advantage of these legal tax savings are missing a great opportunity to build their asset columns."
+
+Employees earn and get taxed, and they try to live on what is left. A corporation earns, spends everything it can, and is taxed on anything that is left. It’s one of the biggest legal tax loopholes that the rich use. They’re easy to set up and are not expensive if you own investments that are producing good cashflow. For example, by owning your own corporation, your vacations can be board meetings in Hawaii. Car payments, insurance, repairs, and health-club memberships are company expenses. Most restaurant meals are partial expenses, and on and on. But it’s done legally with pre-tax dollars.
 
