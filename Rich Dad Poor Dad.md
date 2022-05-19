@@ -100,3 +100,10 @@ The rich focus on their asset columns while everyone else focuses on their incom
 
 Employees earn and get taxed, and they try to live on what is left. A corporation earns, spends everything it can, and is taxed on anything that is left. It’s one of the biggest legal tax loopholes that the rich use. They’re easy to set up and are not expensive if you own investments that are producing good cashflow. For example, by owning your own corporation, your vacations can be board meetings in Hawaii. Car payments, insurance, repairs, and health-club memberships are company expenses. Most restaurant meals are partial expenses, and on and on. But it’s done legally with pre-tax dollars.
 
+## LESSON 5: THE RICH INVENT MONEY
+
+"Often in the real world, it’s not the smart who get ahead, but the bold."
+
+"Yet the one thing that holds all of us back is some degree of self-doubt. It is not so much the lack of technical information that holds us back, but more the lack of self-confidence. Some are more affected than others."
+
+
