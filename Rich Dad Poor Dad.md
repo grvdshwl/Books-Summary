@@ -106,4 +106,26 @@ Employees earn and get taxed, and they try to live on what is left. A corporatio
 
 "Yet the one thing that holds all of us back is some degree of self-doubt. It is not so much the lack of technical information that holds us back, but more the lack of self-confidence. Some are more affected than others."
 
+"It is not gambling if you know what you’re doing. It is gambling if you’re just throwing money into a deal and praying."
 
+"A year later, the depressed Oregon real estate market had begun
+to pick up. California investors, flush with money from their still booming real estate market, were moving north and buying up Oregon and Washington. I sold that little house for $95,000 to a young
+couple from California who thought it was a bargain. My capital
+gains of approximately $40,000 were placed into a 1031 tax-deferred exchange, and I went shopping for a place to put my money. In about a month, I found a 12-unit apartment house right next to the Intel plant in Beaverton, Oregon. The owners lived in Germany, had no idea
+Rich Dad Poor Dad.
+
+ The problem with “secure” investments is that they are often sanitized, that is, made so safe that the gains are less.
+what the place was worth, and again, just wanted to get out of it. 
+
+I offered $275,000 for a $450,000 building. They agreed to $300,000. I bought it and held it for two years. Utilizing the same 1031-exchange process, we sold the building for $495,000 and bought a 30-unit apartment building in Phoenix,
+ Arizona. We had moved to Phoenix by then to get out of the rain, and needed to sell anyway. Like the former Oregon market, the real estate market in Phoenix was depressed. The price of the 30-unit apartment building in Phoenix was $875,000, with $225,000 down. The cash flow from the 30 units was a little over $5,000 a month.
+The Arizona market began moving up and, a few years later, a Colorado investor offered us $1.2 million for the property."
+
+Three steps to be an investor :
+
+1. Find an opportunity that everyone else missed.
+
+2. Raise Money.
+
+3. Organize Smart People. 
+4. 
