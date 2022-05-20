@@ -128,4 +128,5 @@ Three steps to be an investor :
 2. Raise Money.
 
 3. Organize Smart People. 
-4. 
+
+
