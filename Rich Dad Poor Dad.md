@@ -130,3 +130,25 @@ Three steps to be an investor :
 3. Organize Smart People. 
 
 
+## LESSON 6: WORK TO LEARN— DON'T WORK FOR MONEY
+
+"Job security meant everything to my educated dad. Learning meant everything to my rich dad."
+
+"financial intelligence is a synergy of accounting, investing, marketing, and law."
+
+“You want to know a little about a lot i.e. learn little little about most of things.”
+
+The most important specialized skills are sales and marketing. The ability to sell—to communicate to another human being, be it a customer, employee, boss, spouse, or child—is the base skill of personal success. 
+
+Communication skills such as writing, speaking, and negotiating are crucial to a life of success.
+
+Skills to learn via course, Hands on and books :
+
+1. Sales
+2. Marketing
+3. Negotiation
+4. Public Speaking 
+5. Leadership
+6. Accounting
+7. Investing
+8. Law and taxes. 
