@@ -148,7 +148,8 @@ Skills to learn via course, Hands on and books :
 2. Marketing
 3. Negotiation
 4. Public Speaking 
-5. Leadership
-6. Accounting
-7. Investing
-8. Law and taxes. 
+5. Body Language
+6. Leadership
+7. Accounting
+8. Investing
+9. Law and taxes
