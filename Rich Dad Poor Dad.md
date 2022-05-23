@@ -153,3 +153,26 @@ Skills to learn via course, Hands on and books :
 7. Accounting
 8. Investing
 9. Law and taxes
+
+
+# Lesson 7 OVERCOMING OBSTACLES
+
+There are five main reasons why financially literate people may still not develop abundant asset columns that could produce a large cash flow. The five reasons are:
+1. Fear
+2. Cynicism
+3. Laziness
+4. Bad habits
+5. Arrogance
+
+“Winning means being unafraid to lose.”
+
+I’ve never met people who have fallen in love who have never had their heart broken. And I’ve never met someone rich who has never lost money.
+
+So for most people, the reason they don’t win financially is because the pain of losing money is far greater than the joy of being rich.
+
+I like to quote John D. Rockefeller, who said, “I always tried to turn every disaster into an opportunity.”
+
+Failure inspires winners. And failure defeats losers.
+
+Overcome the cyanism or doubt.
+
