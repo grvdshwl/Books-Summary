@@ -176,3 +176,12 @@ Failure inspires winners. And failure defeats losers.
 
 Overcome the cyanism or doubt.
 
+Rich dad believed that the words
+“I can’t afford it” shut down your brain. “How can I afford it?” opens up possibilities, excitement, and dreams.
+
+“Do what you feel in your heart to be right—for you’ll be criticized anyway. You’ll be damned if you do, and damned if you don’t.”
+
+"If I pay myself first, I get financially stronger, mentally and fiscally."
+
+Overcome Arrogance - When you know you are ignorant in a subject, start educating yourself by finding an expert in the field or a book on the subject.
+
