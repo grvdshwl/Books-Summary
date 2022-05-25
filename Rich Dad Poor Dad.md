@@ -185,3 +185,50 @@ Rich dad believed that the words
 
 Overcome Arrogance - When you know you are ignorant in a subject, start educating yourself by finding an expert in the field or a book on the subject.
 
+## Lesson 8 :Getting Started
+
+1. Find a reason greater than reality: the power of spirit :
+
+I will list a few: first, the “don’t wants,” for they create the “wants.”
+I don’t want to work all my life. 
+I don’t want what my parents aspired for, which was job security and a house in the suburbs.
+I don’t like being an employee.
+I want to be free to travel the world and live in the lifestyle I love.
+I want to be young when I do this. 
+I wantto simply be free. 
+I want control over my time and my life.
+
+
+2. Make daily choices: the power of choice
+
+It's your choice what you need to do with your time.
+
+3. Choose friends carefully: the power of association
+
+WARNING: Don’t listen to poor or frightened people. I have such friends, and while I love them dearly, they are the Chicken Littles of life. To them, when it comes to money, especially investments, it’s always, “The sky is falling! The sky is falling!” They can always tell you why something won’t work. The problem
+is that people listen to them. But people who blindly accept doom-and-gloom information are also Chicken Littles. As that old saying goes, “Birds of a feather flock together.”
+
+
+
+4. Pay yourself first: the power of self-discipline
+
+5.Pay your brokers well: the power of good advice
+
+6.Be an Indian giver: the power of getting something for nothing
+
+
+For example, I found a small condominium that was in foreclosure a few blocks from where I lived. The bank wanted $60,000, and I submitted a bid for $50,000, which they took, simply because, along
+with my bid, was a cashier’s check for $50,000. They realized I was serious. Most investors would say, “Aren’t you tying up a lot of cash? Would it not be better to get a loan on it?” The answer is, “Not in this case.” My investment company uses this condominium as a vacation rental in the winter months when the “snowbirds”
+come to Arizona. It rents for $2,500 a month for four months out of the year. For rental during the off-season, it rents for only $1,000 a month. I had my money back in about three years. Now I own this asset, which pumps money out for me, month in and month out.
+
+7.Use assets to buy luxuries: the power of focus
+
+8. Choose heroes: the power of myth
+
+9. Teach and you shall receive: the power of giving
+
+
+If I could leave one single idea with you, it is that idea. Whenever you feel short or in need of something, give what you want first and it will come back in buckets. That is true for money, a smile, love, or friendship. I know it is often the last thing a person may want to do, but it has always worked for me. I trust that the principle of reciprocity is true, and I give what I want. I want money, so I give money, and
+it comes back in multiples. I want sales, so I help someone else sell something, and sales come to me. I want contacts, and I help someone else get contacts. Like magic, contacts come to me. I heard a saying years ago that went: “God does not need to receive, but humans need to give.”
+
+It reminds me of the story of the guy sitting with firewood in his arms on a cold, freezing night. He is yelling at the pot-bellied stove, “When you give me some heat, then I’ll put some wood in you!” And when it comes to money, love, happiness, sales, and contacts, all one needs to remember is to give first.
