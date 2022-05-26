@@ -232,3 +232,15 @@ If I could leave one single idea with you, it is that idea. Whenever you feel sh
 it comes back in multiples. I want sales, so I help someone else sell something, and sales come to me. I want contacts, and I help someone else get contacts. Like magic, contacts come to me. I heard a saying years ago that went: “God does not need to receive, but humans need to give.”
 
 It reminds me of the story of the guy sitting with firewood in his arms on a cold, freezing night. He is yelling at the pot-bellied stove, “When you give me some heat, then I’ll put some wood in you!” And when it comes to money, love, happiness, sales, and contacts, all one needs to remember is to give first.
+
+## TODOS
+
+1. self assement.
+2. Look for new ideas
+3. Find someone who has done what you want to do.
+4. Take classes, read, and attend seminars.
+5. Finding a good deal, the right business, the right people, the right investors, or whatever is just like dating. You must go
+to the market and talk to a lot of people, make a lot of offers, counteroffers, negotiate, reject, and accept. I know single people who sit at home and wait for the phone to ring, but it’s better to go to the market, even if it’s only the supermarket. Search, offer, reject, negotiate, and accept are all parts of the process of almost everything in life.
+6. Be Greedy when everyone is fearful and be fearful when everyone is greedy.
+7. Action always beats inaction.
+
