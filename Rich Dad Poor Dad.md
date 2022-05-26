@@ -244,3 +244,6 @@ to the market and talk to a lot of people, make a lot of offers, counteroffers, 
 6. Be Greedy when everyone is fearful and be fearful when everyone is greedy.
 7. Action always beats inaction.
 
+“The key to becoming wealthy is the
+ability to convert earned income into passive income or portfolio income as quickly as possible.”
+
